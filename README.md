@@ -1,0 +1,1 @@
+# C-segitiga-samasisi
